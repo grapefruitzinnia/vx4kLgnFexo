@@ -9,3 +9,5 @@ im going to watch this over the weekend, but he caramelizes the red onions which
 this ramadan i am minimizing my coffee intake, trying to anyway; i wake up so early, then i drink coffee, then i cant sleep before work 🥹
 
 its cold today!! but its mid-march
+
+working on my slides today that explain my code 🥹 no pictures, just text ... some bold text, black bg, white font lol
