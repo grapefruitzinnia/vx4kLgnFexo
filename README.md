@@ -1,5 +1,7 @@
 # vx4kLgnFexo
 
+- [ ] write a blog post on using rsync for copying files
+
 i got this: https://wearefuturesociety.com/collections/frontpage/products/floating-forest its made out of an extinct flower ... so it smells like an extinct flower, interestinggg
 
 https://www.youtube.com/watch?v=JYg1UfVCfiw
