@@ -15,3 +15,5 @@ its cold today!! but its mid-march
 working on my slides today that explain my code 🥹 no pictures, just text ... some bold text, black bg, white font lol
 
 spring allergies 👃🤧🥹
+
+i have some unread books from the past month to get through but time moves so quickly
